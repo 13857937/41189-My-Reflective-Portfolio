@@ -33,28 +33,44 @@ The two sided market is yet to prove useful but it will be interesting when I go
 
 # Week 4 #
 ## What have I learnt this week? ##
+This week we learnt about human centered complex systems. 
 ## What do I 'now know' that I did not before? ##
+I've learnt more about Systems. I am still quite perplexed by the nature of the idea that everything around us is a system but I am coming to terms with it. I did not know the parts of a system either. That they must be constantly changing and evolving, must be connected to elements, actors, agencies, nodes, stocks and have a boundary. Most of this is basically foreign to me and for a few weeks i've struggled to understand what an agent is. 
 ## What insights have I gained? ## 
-## What are (my/the) perceived strengths and weaknesses that I have observed? ##
-## What were the challenges I have encountered/observed and how well (did I/my team) handle them? ## 
+One thing in particular that I know this week that I did not know before is the swimming pool analogy which will be useful in my thinking. As said before I desperately try to dive in and literally sink. I do this in many areas of my life. I want to be the Led Zeppelin of the guitar world, Picasso of the art world and George Orwell of literature but can pairly strum a tune, draw a straight line and write a proper sentence. It's important to start small and swim to the deep. ## What are (my/the) perceived strengths and weaknesses that I have observed? ##
+## What were the challenges I have encountered/observed and how well (did I/my team) handle them? ##
+Making sure to contribute to the weekly discussion board. It's important for a stand point of my learning and to be a good contributor. 
 ## What would I do better next time and with what anticipated results? ##
+Completing the weekly discussion board much earlier!
 ## What theory proved to be useful and why? What have I learnt from this? ##
+The network models allowed me to conceptualise my ideas of systems. When I think of them as all the connected parts of the internet it made a little more sense. 
 
 # Week 5 #
 ## What have I learnt this week? ##
+Aggregating Decisions and Behavour. I've learnt that I need to start on the project before so I don't spend nights riddled with anxiety for potentially failing. Again i've also learnt the many areas in my life that I had used modelling but not known.  
 ## What do I 'now know' that I did not before? ##
+That something as simple as statistics is indeed modelling. I've learnt about populations and sampling and although it might seem rationale to assume it was a model i'd never even heard about modelling until the beginning of this course.
 ## What insights have I gained? ## 
+This week it was not so much about the insights gained but just reinforcing my thinking. Everything i'm doing is a form of modelling. It almost seem meta that I am learning about something that I am doing everyday. 
 ## What are (my/the) perceived strengths and weaknesses that I have observed? ##
+I definitely enjoy mathematics and it is one of my strengths (I think). To me mathematics is just another language (language of love ha). For those who do not understand mathematics well I always say, "If you can learn the abc's you can understand the 123's". 
 ## What were the challenges I have encountered/observed and how well (did I/my team) handle them? ## 
+We only just formed a team this week. Challenges I have are with social anxiety. I know this might seem odd seeing as i'm piping up in class every chance I get but that is why I love online learning so much. I don't have that anxiety. I am removed from my peers. In a group chat I feel anxious though. Unsure of what to write and type and how a message I can keep going over will be percieved. This is something I am working to overcome. 
 ## What would I do better next time and with what anticipated results? ##
+Just relax a bit.  It will be ok. 
 ## What theory proved to be useful and why? What have I learnt from this? ##
+I already knew a lot of the models that we learnt today due to my love of mathematics so all proved useful in their own way. 
 
 # Week 6 #
 ## What have I learnt this week? ##
+That my drive to do well will push my out of my comfort zones. 
 ## What do I 'now know' that I did not before? ##
-## What insights have I gained? ## 
+It's something I already knew but I didn't think about for a while. That the letters on the keyboard and laid out for a particular reason. 
+## What insights have I gained? ##
+The Tipping Point. The idea that everything has a boiling point. I always knew that in terms of water and people but I had never thought about it in relation to pandemics. There was a boiling point before everything started to spill over. My insight was a deeply personal one. What is my tipping point. I have gone through a variety of experiences in my life. Yet it takes a lot for my milk to start spilling over. It's taught me to maybe take signs and cues that I might be stressed because everything has a critical mass. 
 ## What are (my/the) perceived strengths and weaknesses that I have observed? ##
 ## What were the challenges I have encountered/observed and how well (did I/my team) handle them? ## 
+One of my team memebers stopped contact this week and it reminded me of something I do quite often. 
 ## What would I do better next time and with what anticipated results? ##
 ## What theory proved to be useful and why? What have I learnt from this? ##
 
