@@ -17,12 +17,18 @@ Wisdom of the Crowds as it is a fun piece of knowldge to know.
 
 # Week 3 #
 ## What have I learnt this week? ##
+This week I have learnt about modeling people and that there are different trains of thought you can follow. 
 ## What do I 'now know' that I did not before? ##
+You can model people rationally, behaviourally, or follow a rule based form of model. I've also learnt that a lot of the mathematics i've done at university has been a form of modelling. I thought I was just doing "Maths" not realising it was part of a bigger system. Also signaling. Again I did not know that about 'conspicuous consumption' and the it was actually a modelled behaviour that there was reasoning and explanation behind. I've realised there is a lot I don't know and have a lot to learn.
 ## What insights have I gained? ## 
+One of the most interesting things I have learnt this week is about the "Two Sided Market". I lived in Vietnam for a year and it reminded me of haggling. Always state below the amount you want but something that you believe they will percieve to be fair. I never know I was actually modelling when I did this. 
 ## What are (my/the) perceived strengths and weaknesses that I have observed? ##
+There was a lot of reading this week and i've realised one of my weaknesses is desperately trying to learn each piece of knowledge. However, by doing this I learn almost nothing. Instead of choosing the most important or particular peice of knowledge that is relevant to myself I attempt to learn everything and in turn learn very little.
 ## What were the challenges I have encountered/observed and how well (did I/my team) handle them? ## 
+n/a
 ## What would I do better next time and with what anticipated results? ##
 ## What theory proved to be useful and why? What have I learnt from this? ##
+The two sided market is yet to prove useful but it will be interesting when I go overseas again and I haggle and release that there is basically a mathematical structure I am following in my thinking. Almost like playing chess. Just need to think a few steps ahead. 
 
 
 # Week 4 #
