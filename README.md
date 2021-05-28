@@ -68,6 +68,7 @@ That my drive to do well will push my out of my comfort zones.
 It's something I already knew but I didn't think about for a while. That the letters on the keyboard and laid out for a particular reason. 
 ## What insights have I gained? ##
 The Tipping Point. The idea that everything has a boiling point. I always knew that in terms of water and people but I had never thought about it in relation to pandemics. There was a boiling point before everything started to spill over. My insight was a deeply personal one. What is my tipping point. I have gone through a variety of experiences in my life. Yet it takes a lot for my milk to start spilling over. It's taught me to maybe take signs and cues that I might be stressed because everything has a critical mass. 
+Also I learnt about the Granovetter's Riot Model and was able to relate it to something I knew. The Kitty Genovese effect otherwise known as the Bystander Effect. It attempts to explain why someone witnessing a crime would not help the victim and was modelled after the murder of Kitty Genovese. Many people were in their apartments and not one called the police even though they could witness what was going on. It basically states that if one person is being hurt many people will watch until they actually see someone to step in to help as everyone thinks someone else would help. I know my threshold is 0. If I see someone being hurt I will instantly have to step in. It's gotten me into a few mishaps in my time. It was interesting to learn that everyone has a different threshold and actually put a number to mine.
 ## What are (my/the) perceived strengths and weaknesses that I have observed? ##
 ## What were the challenges I have encountered/observed and how well (did I/my team) handle them? ## 
 One of my team memebers stopped contact this week and it reminded me of something I do quite often. 
@@ -77,30 +78,51 @@ One of my team memebers stopped contact this week and it reminded me of somethin
 
 # Week 7 #
 
-## What have I learnt this week? ##
+## What have I learnt this week? ## 
 ## What do I 'now know' that I did not before? ##
+The term Homphily which is defined as "the tendancy of individuals to associate and bond with similar others".
+Birds of a feather flock together. 
 ## What insights have I gained? ## 
+Learning this term made a lot of sense and made me look around at my flock. Who do I hang out with. Am I inspired? Am I happy? I went through a large period of change last year and this caused me to lose a lot of people. Most notably my best friend who chose my ex. This phrase helped me realise we weren't birds of the same flock and had different values and morals. It helped a bit. 
+I also learnt about the Ultimatum Game this week. I actually know of a Game that uses this theory. Golden Balls that was cancelled due to someone finding a flaw in this theory. I've included a link https://www.youtube.com/watch?v=S0qjK3TWZE8. Basically one playing said told the other playing that he was going to steal all the money no matter what the other person chose, but if the other person chose split (which would mean the stealer would get the money), he would give him half. If both parties choose steal, no one would get the money. So by saying no matter what he was going to steal the other party almost had no choice but to to choose split and take the potential chance for the other man to stick to his word.
 ## What are (my/the) perceived strengths and weaknesses that I have observed? ##
+That if I start early I can do well. My team and I have started early on the pre submission and are shaping up to do submit a fairly good assignment. 
 ## What were the challenges I have encountered/observed and how well (did I/my team) handle them? ## 
+Figuring out the models that would be most applicable to our chosen topic. 
 ## What would I do better next time and with what anticipated results? ##
+Nothing this week.
 ## What theory proved to be useful and why? What have I learnt from this? ##
+The Ultimatum Game as I was able to link it to a real world scenario I knew and actually understand why the guy said what he did in the video. 
 
 # Week 8 #
-
-# Week 2 #
-## What have I learnt this week? ##
+## What have I learnt this week? ## 
+This week we focused on strategies. I am very into board games. Especially chess so this was interesting for me. 
 ## What do I 'now know' that I did not before? ##
+I already knew but that Jerry Mandering was a form of the Colonel Blotto game. I'd never heard of this before and found it interesting. 
 ## What insights have I gained? ## 
+That the Prisoner Dilemma goes further than I knew about. I thought there was a stop start but watching the video in class gave me a much deeper understanding of it. I also learnt about how the Prisoner's Dilemma works in court situations in why people turn on their friends so readily. 
+I also learnt about Collective Action Problems and how as a world we are very much not a collective. 
 ## What are (my/the) perceived strengths and weaknesses that I have observed? ##
+That I am not part of the collective and need to be to make it through this dcomplex world. My weaknesses are definitley working in a team. I get extremely stressed but hopefully it will work out ok. 
 ## What were the challenges I have encountered/observed and how well (did I/my team) handle them? ## 
+My team and I are having a hard time working together. I very much want to get the pre-submission down pat but it is proving difficult. We all have different schedules and it is hard. 
 ## What would I do better next time and with what anticipated results? ##
+Maybe try and conquer my social anxiety and suggest that my group meet up together. 
 ## What theory proved to be useful and why? What have I learnt from this? ##
+Colonel Blotto Game. I think it shows the imporance of spreading things out and not leaving everything to the last minute as you're most sure to lose. 
 
-# Week 9 #
+# Week 10-11-12 #
 ## What have I learnt this week? ##
+That I let stress get in the way of my work. I have faced a number of difficulties these weeks. We lost another team member. I had surgery, my dog passed, I got a fine and to be able to afford any of this I need to continue working 30 hours a week. I've learnt that I enjoy starting things early and completing them early but that I let the stresses around me get in my way. 
 ## What do I 'now know' that I did not before? ##
+That I do indeed leave things to the last minute. 
 ## What insights have I gained? ## 
+That this only causes more stress. 
 ## What are (my/the) perceived strengths and weaknesses that I have observed? ##
+Strengths and my analytical skills of myself my weaknesses are not doing anything about them. If I herald back to my early learnings of REDCAPE I know that I need to employ those skills in my life if I want to navigate this complex world. 
 ## What were the challenges I have encountered/observed and how well (did I/my team) handle them? ## 
+That working as a team is difficult and it's easy to leave things to the last minute if you think you're on top of them as you don't know what is coming in the future. 
 ## What would I do better next time and with what anticipated results? ##
+That if you need to get to work by 8am don't catch the train that get's you there at 7:55am catch the one earlier because you never know if the transit guards will go on strike. That isn't actually what happened but I metaphore. I thought I had everything under control and realised that when stress gets in the way it can all very much get out of hand. 
 ## What theory proved to be useful and why? What have I learnt from this? ##
+I learnt a lot this semester and want to say thank you for your guided knowldge. It has been a pleasure learning from your this semester. 
